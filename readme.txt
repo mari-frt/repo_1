@@ -1,3 +1,3 @@
 Seja bem-vinda, bem-vindo, bem-vinde ao meu repositório
 Espero que esteja tudo bem com você
-Tenha um ótimo dia
+Tenha um dia excelente!
