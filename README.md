@@ -3,11 +3,13 @@
 ## Seja bem-vinda, bem-vindo ou bem-vinde!
 
 
-Είσαι υπέροχος
+Είσαι υπέροχος.
+ 
 Desculpa, achei que estava falando com uma deusa grega.
 
 Espero que tudo esteja bem contigo.
 Um dia **maravilhoso** para você!
+
 E *Fora Bolsonaro*!!! 
 
 - Ela é bem
