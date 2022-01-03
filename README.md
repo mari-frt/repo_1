@@ -10,13 +10,14 @@ Desculpa, achei que estava falando com uma deusa grega.
 Espero que tudo esteja bem contigo.
 Um dia **maravilhoso** para você!
 
-E *Fora Bolsonaro*!!! 
+### E *Fora Bolsonaro*!!! 
 
 - Ela é bem
 - programadora
 - ela
 
 **AVISO**
+
 Este ambiente é:
 
 1. LGBTQIA+ friendly
